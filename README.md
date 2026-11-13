@@ -13,7 +13,7 @@ who dreams of becoming the wizard king.
 > 
 > inspiring story about never giving up💪💪💪💪
 > 
-> interesting characters like asta and yuno☯☯
+> interesting characters like asta and Luck
 > 
 > Strong friendship and Teamwork👥👥
 
