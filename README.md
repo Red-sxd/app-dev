@@ -10,8 +10,11 @@ who dreams of becoming the wizard king.
 
 # Why I like It
 > Amazing magic battles and fight scene📖📖📖📖
+> 
 > inspiring story about never giving up💪💪💪💪
+> 
 > interesting characters like asta and yuno☯☯
+> 
 > Strong friendship and Teamwork👥👥
 
 # My Hobbies
