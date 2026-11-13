@@ -19,10 +19,13 @@ who dreams of becoming the wizard king.
 
 # My Hobbies
 > riding motorbikes🏍🏍
+> 
 > Listening to Music🎶🎶🎼
+> 
 > Watching Anime💻💻
 
 # Why I Enjoy my Hobbies
 > i enjoy riding motorbikes because i love the experience and excvitement fo riding.🏍🏍
+> 
 > I also love listening to music because it helps me to relax and enjoy my free time🎶🎶🎼
 
