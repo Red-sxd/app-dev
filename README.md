@@ -5,8 +5,8 @@ My first Repository
 ## About the Anime
 **Genre: Action, Fantasy, Adventure**
 
---- Black clover is an anime about magic, friendship, battles, and determination. it follows asta, a boy born without magic
---- who dreams of becoming the wizard king.
+Black clover is an anime about magic, friendship, battles, and determination. it follows asta, a boy born without magic
+who dreams of becoming the wizard king.
 
 # Why I like It
 > Amazing magic battles and fight scene
